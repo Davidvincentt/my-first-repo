@@ -1,2 +1,2 @@
-kalimat random oke :
+kalimat random oke :.....
 This next song is called, Apocalypse.
